@@ -1,0 +1,113 @@
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   https://vk.com/topic-239401932_66011754
+https://vk.com/topic-239433183_65566794
+https://vk.com/topic-239401930_66483426
+https://vk.com/topic-239433317_66866124
+https://vk.com/topic-239463921_67090257
+https://vk.com/topic-239437365_65349571
+https://vk.com/topic-239401801_67090268
+https://vk.com/topic-239437431_67090275
+https://vk.com/topic-239463931_67090280
+https://vk.com/topic-239463921_67090284
+https://vk.com/topic-239463603_65566813
+https://vk.com/topic-239433159_66203741
+https://vk.com/topic-239437404_65432990
+https://vk.com/topic-239463599_66203733
+https://vk.com/topic-239401812_66011773
+https://vk.com/topic-239433333_65566827
+https://vk.com/topic-239433167_66866160
+https://vk.com/topic-239433183_65566854
+https://vk.com/topic-239433317_66866170
+https://vk.com/topic-239463921_67090308
+https://vk.com/topic-239401932_66011793
+https://vk.com/topic-239437365_65349630
+https://vk.com/topic-239401930_66483475
+https://vk.com/topic-239401801_67090316
+https://vk.com/topic-239437431_67090314
+https://vk.com/topic-239463603_65566869
+https://vk.com/topic-239463921_67090324
+https://vk.com/topic-239463931_67090319
+https://vk.com/topic-239433159_66203788
+https://vk.com/topic-239463599_66203792
+https://vk.com/topic-239437404_65433044
+https://vk.com/topic-239401812_66011824
+https://vk.com/topic-239433333_65566890
+https://vk.com/topic-239433159_66203802
+https://vk.com/topic-239433167_66866214
+https://vk.com/topic-239433183_65566902
+https://vk.com/topic-239463597_66866227
+https://vk.com/topic-239433317_66866226
+https://vk.com/topic-239401932_66011838
+https://vk.com/topic-239437365_65349689
+https://vk.com/topic-239401930_66483513
+https://vk.com/topic-239437404_65433080
+https://vk.com/topic-239463921_67090354
+https://vk.com/topic-239437431_67090367
+https://vk.com/topic-239463603_65566911
+https://vk.com/topic-239463931_67090374
+https://vk.com/topic-239401801_67090364
+https://vk.com/topic-239463599_66203836
+https://vk.com/topic-239433159_66203835
+https://vk.com/topic-239433183_65566923
+https://vk.com/topic-239492054_65537502
+https://vk.com/topic-239463599_66279882
+https://v.youku.com/v_show/id_XNjUzODQzMDEwOA==.html
+https://v.youku.com/v_show/id_XNjU0MDUyNDc4MA==.html
+https://vk.com/topic-239433187_66937345
+https://vk.com/topic-239433183_65683391
+https://vk.com/topic-239488043_65659549
+https://v.youku.com/v_show/id_XNjUzMjEwMjQxMg==.html
+https://v.youku.com/v_show/id_XNjU0MDgwMTI4MA==.html
+https://vk.com/topic-239463921_67179582
+https://vk.com/topic-239482500_66572210
+https://vk.com/topic-239463603_65642641
+https://v.youku.com/v_show/id_XNjU0MDc1Nzk2MA==.html
+https://v.youku.com/v_show/id_XNjU0MDgwNTczMg==.html
+https://vk.com/topic-239466176_65873716
+https://vk.com/topic-239437431_67214820
+https://vk.com/topic-239433159_66276376
+https://vk.com/topic-239492640_66576558
+https://v.youku.com/v_show/id_XNjU0MDc4NzA5Ng==.html
+https://vk.com/topic-239437404_65515997
+https://v.youku.com/v_show/id_XNjU0MTM1MDM5Ng==.html
+https://vk.com/topic-239437404_65434131
+https://vk.com/topic-239433324_65514219
+https://vk.com/topic-239463597_66987299
+https://vk.com/topic-239463611_67214019
+https://v.youku.com/v_show/id_XNjU0MDY0ODg4MA==.html
+https://vk.com/topic-239463591_67087426
+https://v.youku.com/v_show/id_XNjUzMjUxMTA4OA==.html
+https://vk.com/topic-239401812_66083400
+https://vk.com/topic-239480467_66964805
+https://vk.com/topic-239433324_65513816
+https://vk.com/topic-239437449_66333943
+https://vk.com/topic-239463596_65773863
+https://vk.com/topic-239433184_65431281
+https://vk.com/topic-239463629_66272021
+https://vk.com/topic-239433333_65568369
+https://v.youku.com/v_show/id_XNjUyOTM1OTA4OA==.html
+https://v.youku.com/v_show/id_XNjU0MDc4MzQ2NA==.html
+https://vk.com/topic-239484211_67182398
+https://vk.com/topic-239433187_66987253
+https://vk.com/topic-239433184_65431668
+https://vk.com/topic-239433184_65506047
+https://vk.com/topic-239487928_66019350
+https://vk.com/topic-239433187_66989743
+https://v.youku.com/v_show/id_XNjU0MDgwMTA1Mg==.html
+https://vk.com/topic-239433333_65678782
+https://vk.com/topic-239433316_65856219
+https://vk.com/topic-239489631_67181946
+https://vk.com/topic-239433318_66002517
+https://v.youku.com/v_show/id_XNjU0MDUyOTA0MA==.html
+https://v.youku.com/v_show/id_XNjUyOTk1MDQ0MA==.html
