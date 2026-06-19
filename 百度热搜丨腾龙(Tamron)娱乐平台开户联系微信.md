@@ -1,0 +1,114 @@
+腾龙公司怎么开会员账号【18887-555563電话】新盛公司怎么开会员号【微信YF889FS】新盛公司怎么开代理账号【电话17300449493】腾龙公司怎么开代理账号【微信S88890909】腾龙公司怎么代理怎么开【微信S88890909】
+新盛公司怎么开会员账号【18887-555563電话】腾龙公司在线开户微信【YF889FS】腾龙公司负责人电话【17300449493】腾龙公司电话【18887-555563】腾龙公司开户微信【5501065】腾龙公司怎么开会员账号【微信YF889FS】腾龙公司怎么开代理账号【微信S88890909】腾龙公司开代理【电话18887-555563】腾龙公司开会员号【微信YF889FS】腾龙游戏登录网址【TL8666.COM】腾龙公司游戏注册网址【TL8666.COM】腾龙公司代理合作微信【5501065】新盛公司经理电话【18887-555563】新盛公司在线开户微信【YF889FS】新盛公司负责人电话【17300449493】新盛公司电话【18887-555563】新盛公司开户微信【5501065】新盛公司怎么开会员账号【微信YF889FS】新盛公司怎么开代理账号【微信S88890909】新盛公司开代理【电话18887-555563】新盛公司开会员号【微信YF889FS】新盛游戏登录网址【XS4010.COM】新盛公司游戏注册网址【XS4010.COM】新盛公司代理合作微信【5501065】新盛公司客服微信【5501065】新盛公司客服电话【18887555563】新盛公司在线客服电话【18887555563】新盛公司游戏注册网址【vv666.tv】新盛公司现场客服电话【17300449493】新盛公司在线开户客服电话【18887555563】新盛公司经理电话【18887555563】新盛公司客服电话【17300449493】新盛公司经理电话【18887555563】新盛公司现场经理电话【18887555563】新盛公司客服电话【18887555563】新盛公司现场客服电话【18887555563】新盛公司在线客服怎么联系电话【18887555563】新盛公司客服经理电话【18887555563】腾龙公司怎么开代理微信【YF889FS】新盛公司客服微信【YF889FS】新盛公司现场客服微信【YF889FS】新盛公司在线客服怎么联系微信【YF889FS】新盛公司客服经理微信【YF889FS】新盛公司客服微信电话【18887555563】新盛公司上分客服微信【5501065】新盛公司开户客服微信【5501065】新盛公司现场经理微信【5501065】新盛公司上分客服联系微信【5501065】新盛公司上下分客服联系微信【5501065】新盛公司开户客服联系微信【微信S88890909】新盛公司现场经理联系微信【微信S88890909】新盛公司客服经理联系微信【微信S88890909】新盛公司在线客服联系微信【微信S88890909】《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   https://github.com/porch1prun/ofhgxg/commit/75670c995cfa936c8e5c18f7f87cb1e98ae9f1a1
+https://github.com/ratonking/vupowi/commit/bca59b32cc2885dc767c06ecc68c0de80aa981e6
+https://github.com/gvrezjg8af46/ggadyg/commit/b6aafa46135b80a02a36ee442624c8373b696271
+https://github.com/health1sph/gkutfr/commit/8b92031dd72a53fd1102923c75122ac427ec23a5
+https://github.com/knvjjk9dmv63/lzcila/commit/580c95d349d20e2e48328655aadf17682aedb4ed
+https://github.com/ravenroof2/jfguyw/commit/529ea5d18e92400f398a82e58a240444cdc6d3a6
+https://github.com/alto19jeff/raphza/commit/01bc71b5830b8b5201f28a2dfdf0d65c7616b0b8
+https://github.com/lollyignes/cprzgf/commit/5e60f49f8c6be31667241eed6d8a600d9600f005
+https://github.com/peteroteks/hfbjga/commit/b386f585979a50abdfef5afaf49cabc104559fa5
+https://github.com/therealmep/hnkgpl/commit/5520a3dbc96b11d4fe7b97a850cfe1455f11b43f
+https://github.com/xindinedjo/eocdlg/commit/f29b042195bcb0d09160f2d0cb8351ca50f5128a
+https://github.com/capucajuha/fpusyq/commit/ad1a2f58eede5123b8257d542418934bfbaba9dd
+https://github.com/dolcilek/rjprwo/commit/727e9263dd5f37f90dc687b99c4f6440f7b22708
+https://github.com/markbertle/jydthw/commit/ba99dc6c8d1ce24f3115c9dfa2491ae0301e7693
+https://github.com/plugithedm/mzswht/commit/f97fcce3835539b149b27a9fd93cbc382c10474a
+https://github.com/brainturre/iwuoei/commit/4f4253c17ecf252b28ab3edff5dabd8a095ef592
+https://github.com/gvrezjg8af46/ggadyg/commit/983a04cdcd858980ddf146731294d52e88a1aa9a
+https://github.com/porch1prun/ofhgxg/commit/d519383d53cd34b156f46490e8d9fc4a3ba065ec
+https://github.com/knvjjk9dmv63/lzcila/commit/9f4ed4ec5d875c7a4d7040f3d5c45f795b142407
+https://github.com/waiter0bre/bmxpny/commit/6437805ac6897a5ed9283043866e71d938fee3ce
+https://github.com/peteroteks/hfbjga/commit/13cc62615db31ead7ed92c97f5220a966428f6d4
+https://github.com/ratonking/vupowi/commit/507c7ed787bd6ddb7b4aee8d441b78061f42a212
+https://github.com/gvrezjg8af46/ggadyg/commit/9ca8e26cfe5659591e2d6b45fdcea22e6d1f824a
+https://github.com/lollyignes/cprzgf/commit/bd7c81fe39d6033fa23604bcec555376cab1b78c
+https://github.com/waiter0bre/bmxpny/commit/29bb3239ca32fc695a92a0c36da7e6997a5619a7
+https://github.com/alto19jeff/raphza/commit/898701472ced49ab34a8d81b438f97a236c4fbfe
+https://github.com/knvjjk9dmv63/lzcila/commit/d55aeeb01fe586e084f5b0e95d9b38301e8d1c45
+https://github.com/ravenroof2/jfguyw/commit/c0289c2065cd4331e5384565071d278bdd0ab812
+https://github.com/lollyignes/cprzgf/commit/3223630659f640f910a691c603aa4f217f72b138
+https://github.com/capucajuha/fpusyq/commit/c28e9e78f5639ac25af34da75401b83a6958d44f
+https://github.com/ravenroof2/jfguyw/commit/b4577b731be36194bfd475290a36ac4c5acf402a
+https://github.com/health1sph/gkutfr/commit/7072e1acef9a4f5ab9f2451db85e0074944a7d18
+https://github.com/therealmep/hnkgpl/commit/cecd6bf687e0e1d0ede6f39dbfbe986666ba038c
+https://github.com/brainturre/iwuoei/commit/284dbf1e983e05f3429f137a8a2e7b8cf80b7d29
+https://github.com/dolcilek/rjprwo/commit/af59deaf7e1cacf75494b257a973ed8bd906d9e9
+https://github.com/peteroteks/hfbjga/commit/3c1d3a6d94f286c2816178ee3d46af39a0b7a9d1
+https://github.com/waiter0bre/bmxpny/commit/4ad625979c691f588b5522c4730b8903bf34b9fe
+https://github.com/xindinedjo/eocdlg/commit/2eee9f54ae920d576fa76f7af22061e7761abbc3
+https://github.com/gvrezjg8af46/ggadyg/commit/41830eec855c2b23ba91ee055a6f8b77181b5976
+https://github.com/porch1prun/ofhgxg/commit/4b6e4447283450d7c5575afd66f8e6017759efff
+https://github.com/alto19jeff/raphza/commit/5d290f2b505247ecdb06a8bc56eeebff4ef23e11
+https://github.com/markbertle/jydthw/commit/e49377754c2f3b806315230140a4c764132d2abf
+https://github.com/waiter0bre/bmxpny/commit/213c64bcc9424f6713b7293a5b217f58f60d2d88
+https://github.com/plugithedm/mzswht/commit/15747eb634e623ee977b565503d27435ef183bed
+https://github.com/knvjjk9dmv63/lzcila/commit/962c3cb7e55929c74186291dcf2a51b0641afd67
+https://github.com/gvrezjg8af46/ggadyg/commit/536a7d0459cdfc3c9c8402c9ebbceab28ff46004
+https://github.com/ratonking/vupowi/commit/849ca9176cceed4fa1fa5b33b9da0b90d20a5064
+https://github.com/ratonking/vupowi/blob/main/2026%E6%80%BB%E7%BB%93%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%8E%B0%E5%9C%BA%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/lollyignes/cprzgf/commit/a96aa52a4aa60e6adeff49e7e281e55dec49d677
+https://github.com/lollyignes/cprzgf/blob/main/%E7%AE%80%E4%B9%A6%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/peteroteks/hfbjga/blob/main/%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%8E%B0%E5%9C%BA%E7%BB%8F%E7%90%86.md
+https://github.com/porch1prun/ofhgxg/commit/d91a50bb80a04fae13307b6d6a48c66d5b66988a
+https://github.com/porch1prun/ofhgxg/blob/main/%E7%90%86%E6%83%B3%E7%A4%BE%E5%8C%BA%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%85%85%E5%80%BC%E6%8F%90%E6%AC%BE%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/xindinedjo/eocdlg/commit/12c25041eef0bdbde24b52b12c68a616be591e56
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E7%AC%AC%E4%B8%80%E4%BA%86%E8%A7%A3%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/peteroteks/hfbjga/blob/main/%E5%92%B8%E9%B1%BC%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80.md
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E6%90%9C%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%B8%8A%E4%B8%8B%E5%88%86%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B8%B8%E6%88%8F%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80.md
+https://github.com/peteroteks/hfbjga/blob/main/2026%E5%88%86%E6%9E%90%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80.md
+https://github.com/waiter0bre/bmxpny/blob/main/2026%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/plugithedm/mzswht/commit/a4286d16a47aa3cbcfc2d5027ca7473105e443eb
+https://github.com/brainturre/iwuoei/blob/main/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B024%E5%B0%8F%E6%97%B6%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/porch1prun/ofhgxg/commit/f400fd1517f2965b63ea993978b8673cb889e739
+https://github.com/plugithedm/mzswht/blob/main/%E5%A4%A7%E4%BC%97%E7%82%B9%E8%AF%84%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BB%8F%E7%90%86%E5%BE%AE%E4%BF%A1.md
+https://github.com/peteroteks/hfbjga/commit/0102b31087a4ebad63898eb6795e7ec67674aca1
+https://github.com/therealmep/hnkgpl/commit/ba1d0ce44ad71e046d671e66edbc828f2ff43fd8
+https://github.com/dolcilek/rjprwo/blob/main/%E8%AE%AF%E9%A3%9E%E6%98%9F%E7%81%AB%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/ravenroof2/jfguyw/commit/529ea5d18e92400f398a82e58a240444cdc6d3a6
+https://github.com/waiter0bre/bmxpny/blob/main/%E7%BE%8E%E5%9B%A2%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%B8%8A%E4%B8%8B%E5%88%86%E5%BE%AE%E4%BF%A1.md
+https://github.com/lollyignes/cprzgf/blob/main/%E7%AE%80%E4%B9%A6%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/ravenroof2/jfguyw/blob/main/2026%E6%83%B3%E6%B3%95%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/xindinedjo/eocdlg/blob/main/%E7%83%AD%E8%AE%AE%E7%82%B9%E8%AF%84%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/dolcilek/rjprwo/commit/31d1ea40458dbd7dd9633ffbca6958cf0aae6576
+https://github.com/health1sph/gkutfr/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E8%AE%AE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BE%AE%E4%BF%A1%E5%A4%9A%E5%B0%91.md
+https://github.com/brainturre/iwuoei/commit/ccce9341c9f27d48be278c0786dd0795c951cbfc
+https://github.com/waiter0bre/bmxpny/blob/main/2026%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/alto19jeff/raphza/blob/main/2026%E5%BF%85%E7%9C%8B%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1%E5%A4%9A%E5%B0%91.md
+https://github.com/knvjjk9dmv63/lzcila/commit/e64c26f0de95752d5eda2c69f69fe6d0b9064ac0
+https://github.com/markbertle/jydthw/blob/main/%E9%97%AE%E4%B8%80%E9%97%AE%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%94%B5%E8%AF%9D%E8%81%94%E7%B3%BB.md
+https://github.com/knvjjk9dmv63/lzcila/commit/9f4ed4ec5d875c7a4d7040f3d5c45f795b142407
+https://github.com/capucajuha/fpusyq/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%8E%B0%E5%9C%BA%E7%BB%8F%E7%90%86%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/dolcilek/rjprwo/blob/main/%E7%AC%AC%E4%B8%80%E7%A7%91%E6%99%AE%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/lollyignes/cprzgf/blob/main/%E5%92%B8%E9%B1%BC%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%94%B5%E8%AF%9D%E5%AE%A2%E6%9C%8D.md
+https://github.com/plugithedm/mzswht/commit/c249cfb8d977b2c81e84111d09e9e04dce73b140
+https://github.com/health1sph/gkutfr/commit/3939a0e1980977e650dbc1b73d6714944bf6394a
+https://github.com/dolcilek/rjprwo/commit/982e65e99aedb479ef82940ab4b59352ec51ba36
+https://github.com/plugithedm/mzswht/blob/main/%E5%A4%A7%E4%BC%97%E7%82%B9%E8%AF%84%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BB%8F%E7%90%86%E5%BE%AE%E4%BF%A1.md
+https://github.com/waiter0bre/bmxpny/blob/main/%E7%BE%8E%E5%9B%A2%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E8%81%94%E7%B3%BB%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/markbertle/jydthw/blob/main/%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E6%80%8E%E4%B9%88%E8%81%94%E7%B3%BB.md
+https://github.com/plugithedm/mzswht/commit/24d5dbe7bd587e55654c4bded9d4f681a7aba950
+https://github.com/lollyignes/cprzgf/commit/64472f3bc468937d362bbf8607d50763d2aec3e8
+https://github.com/knvjjk9dmv63/lzcila/commit/9815417e08acd0a2d9d67edde7e78020a8da3aab
+https://github.com/ravenroof2/jfguyw/commit/3ff3c5de003b345152f0505998359414ae7944e3
+https://github.com/capucajuha/fpusyq/commit/e461c62d5ba15b741767bb3b26b5703e11c9152c
+https://github.com/health1sph/gkutfr/blob/main/%E5%A4%A7%E4%BC%97%E7%82%B9%E8%AF%84%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BB%8F%E7%90%86%E7%94%B5%E8%AF%9D.md
+https://github.com/brainturre/iwuoei/commit/f71f9bbaab9a516efdda35a057ae7c1ec421b622
+https://github.com/porch1prun/ofhgxg/blob/main/%E6%8A%96%E9%9F%B3%E5%88%86%E4%BA%AB%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86%E7%BD%91%E5%9D%80.md
+https://github.com/alto19jeff/raphza/blob/main/%E7%83%AD%E6%A6%9C%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1.md
+https://github.com/health1sph/gkutfr/commit/771b0db6ee5b3d8574ef509e2a3a1407b416b1bf
+https://github.com/health1sph/gkutfr/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E8%AE%AE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BE%AE%E4%BF%A1%E5%A4%9A%E5%B0%91.md
+https://github.com/waiter0bre/bmxpny/blob/main/%E7%BE%8E%E5%9B%A2%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%B8%8A%E4%B8%8B%E5%88%86%E5%BE%AE%E4%BF%A1.md
